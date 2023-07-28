@@ -2,7 +2,6 @@
 
 <br><br><br>
 
-### I have your IP >:)
 ### Don't click random links :/
 
 <br><br><br><br>
